@@ -1,7 +1,7 @@
 ### Hi there 👋
 Sobat UMM!
 
-Informatika
+Informatika:
 Susah!
 Pusing!
 Ribet!
